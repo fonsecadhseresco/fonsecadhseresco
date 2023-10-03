@@ -1,0 +1,2 @@
+- Ingeniero del Software por la Escuela de Ingeniería Informática de la Universidad de Oviedo.
+- Actualmente trabajando para Seresco S.A en Oviedo, Asturias.
